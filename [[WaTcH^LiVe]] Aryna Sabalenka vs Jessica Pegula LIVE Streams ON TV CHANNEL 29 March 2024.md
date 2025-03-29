@@ -2,6 +2,10 @@
 The World No. 1, Aryna Sabalenka, takes on No. 4 Jessica Pegula in the 2025 Miami Open Women's final on Saturday at Hard Rock Stadium in Miami Gardens.
 Aryna Sabalenka vs Jessica Pegula
 
+[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/492bazvn)
+
+[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://tinyurl.com/492bazvn)
+
 Date: Saturday, Mar. 29, 2025
 Time: 3:00 PM ET
 Channel: Tennis Channel
